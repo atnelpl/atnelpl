@@ -4,7 +4,7 @@ Ciesze sie, ze tutaj trafiles bo rozumiem, ze szukales pewnej firmy zajmujacej s
 
 Moze zastanawiasz sie nad zakupem wypasionego kursu ESP za jedyne 1650PLN...
 
-Masz wiec kilka dodatkowych chwil na zastanowienie sie, czy na pewno chcesz wspolpracowac z ta firma:)
+Masz wiec kilka dodatkowych chwil na zastanowienie sie, czy na pewno chcesz :)
 
 Moja osobista opinia jest taka, ze pan Mirek Kardas wybudowal sobie calkiem niezle prosperujacy ekosystem oparty na wlasnych ksiazkach, wlasnych modułach, własnych płytkach developerskich, forum i grupie zagorzalych wielbicieli. Niestety chyba sprawilo to, ze wraz z rozwojem firmy, nieproporcjonalnie bardziej rozwinelo mu sie ego. Wystarczy przegladnac filmy na firmowym koncie YouTube i porownac te sprzed 10 lat z najnowszymi. 
 
@@ -32,5 +32,7 @@ I naprawde nie mialbym nic przeciwko temu, gdybym widzial, ze kurs jest przygoto
 Wyglada to doslownie, jakby Mirek wlasnie wpadl jak cos powinno byc zrobione i natychmiast wlaczal kamere, zeby nagrac material zanim zapomnie jak to zostalo zrobione. Uczestnik ma wrazenie, ze uczy sie z prowadzacym - zwlaszcza, ze on sam zdaje sie byc czasem zaskoczony wynikiem demonstacji. Nie mowiac juz o osobnych filamch zaczynajacych sie od "Prrrr - wroc, zapomnialem ze..." bo to juz jest zenujace i zdaje sie smieszyc wylacznie autora. 
 
 Dlatego mam cicha nadzieje, za Mirek Kardas wpadnie tutaj kiedys, poczyta i zacznie szanowac ludzi, ktorych na poczatku nazywal "inwestorami", a ktorzy uzbierali mu calkiem pokazna kupke pieniedzy. Moze zechce podzielic sie nimi z kims, kto przyszle lekcje obrobi i stworzy profesjonalny material szkoleniowy na miare profesjonalnej firmy, na jaka probuje lansowac sie Atnel. Bo poki co, jako inwestor czuje sie wydymany.
+
+A jako, ze moja pierwsza proba kontaktu z zacnym autorem zakonczyla sie szybko, to wlasnie tutaj bede wstawial podsumowania nastepnych lekcji. 
 
 Kontakt z autorem: atnelsucks@gmail.com. 
