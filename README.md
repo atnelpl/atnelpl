@@ -2,7 +2,7 @@ Witam Cie bardzo serdecznie i cieplutko.
 
 Ciesze sie, ze tutaj trafiles bo rozumiem, ze szukales pewnej firmy zajmujacej sie sprzedaza podzespolow elektronicznych, ksiazek i kursow.
 
-Moze zastanawiasz sie nad zakupem wypasionego kursu ESP za jedyne 1650PLN...
+Moze zastanawiasz sie nad zakupem wypasionego kursu ESP za jedyne 1650PLN... A moze jestes obecnie uczestnikiem kursu i chcesz dodac cos od siebie - kontakt na koncu.
 
 Masz wiec kilka dodatkowych chwil na zastanowienie sie, czy na pewno chcesz :)
 
